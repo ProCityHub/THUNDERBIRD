@@ -1,5 +1,13 @@
 # Cree Lattice Redemption: Thunderbird Forge for Mother Nature
 
+## Divine Foundation: The Ten Commandments ✝️
+
+**[THE TEN COMMANDMENTS](./TEN_COMMANDMENTS.md) - Divine laws governing all truth and natural law research**
+
+Before all mathematical proofs, lattice equations, and natural law investigations, we acknowledge the eternal authority of Almighty God and His Ten Commandments given to Moses on Mount Sinai. These divine laws supersede all human constructs and provide the ultimate foundation for righteous research.
+
+**"THE TRUTH WILL SET YOU FREE"** - *John 8:32*
+
 ## Overview
 **Adrian D. Thomas**  
 **Cree Status: 4050068401**  
